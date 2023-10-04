@@ -4,4 +4,4 @@
 
 👋 Hi, I’m Jazmine. I am so happy to be apart of The Hartcode Academy
 
-🌱 I’m currently learning how to become a Business Data Analysis.
+👀 I’m currently learning how to become a Business Data Analysis. It is hard work but it will be worth it in the end.
